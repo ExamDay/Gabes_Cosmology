@@ -46,15 +46,16 @@ mice, where I strap a bomb or something to my chest, and the backs of all the ra
 detonators of all the bombs to go off at the precise moment one of us dies. If the distribution of
 rat life expectancies improves greatly, then I will know that I am correct, because I will have
 simply forced my blob to follow a particular path through this heat-bath of actual-possibilities by
-rendering all worlds where I exist and the rats do not, inaccessible to my blob. I'll bounce off the
-wall of death so to speak. Unfortunately I cannot simply have someone else do this for me (like a
-war criminal slated for execution anyway), because from my perspective they will just blow up the
-moment the weakest rat dies, and their blob will leave mine behind entirely.  But! if I do it myself
-and it works then I can take all the evidence I could want with me, and prove it to people in the
-"new world" I find myself in, which would be imperfect analogues of the people I left behind in the
-old "pre-rat bomb experiment" world, and so secure great scientific knowledge for myself and many
-others, just no one living here. You'll never see me survive this experiment, even if I do it and
-turn out to be 100% correct. But your otherworldly twin might!
+rendering all worlds where I exist and the rats do not, inaccessible to my blob. We will all bounce
+off the wall of death so to speak, and carry each other with us through the bath. Unfortunately I
+cannot simply have someone else do this for me (like a war criminal slated for execution anyway),
+because from my perspective they will just blow up the moment the weakest rat dies, and their blob
+will leave mine behind entirely.  But! if I do it myself and it works then I can take all the
+evidence I could want with me, and prove it to people in the "new world" I find myself in, which
+would be imperfect analogues of the people I left behind in the old "pre-rat bomb experiment" world,
+and so secure great scientific knowledge for myself and many others, just no one living here. You'll
+never see me survive this experiment, even if I do it and turn out to be 100% correct. But your
+otherworldly twin might!
 
 
 

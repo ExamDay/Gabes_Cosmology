@@ -1,5 +1,6 @@
 
-# Gabes_Cosmology Some thoughts on quantum mechanics and indeterminism.
+# Gabes_Cosmology
+## Some thoughts on quantum mechanics and indeterminism.
 
 My best answer to the big question so far, about what generates quantum randomness, is not that
 there are many different realities, because they are bound together in a paraconsistent whole by the

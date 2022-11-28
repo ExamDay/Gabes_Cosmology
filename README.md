@@ -66,3 +66,5 @@ configuration so as to render my body /inevitably/ dead at some point in the ver
 because if it were to wreak those changes /while/ i am capable of perceiving them I would be dead
 meat. Once my conscious experience is entangled, in any way, with the inevitability of my own
 demise, that's it.
+
+For further work: find a way to do this without strapping a bomb to my chest.
